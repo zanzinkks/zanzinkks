@@ -1,6 +1,6 @@
 ## zanzinkks
 
-- eu jogo jogos eletrcônicos
+- eu jogo jogos eletrcônicos🤣
 - gosto muito de musíca
 - gosto de sair de casa
 - gosto de ficar em casa com os amigos
